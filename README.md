@@ -1,5 +1,7 @@
 # Is it really harder to do it on a cold rainy night in Stoke?
 
+![Bet365 Stadium](https://upload.wikimedia.org/wikipedia/commons/8/81/Stoke_City_FC_V_Arsenal_09.jpg)
+
 _What is the meaning of 'can they do it on a cold rainy night in Stoke'?
 The expression was made famous by commentator Andy Gray, who was discussing a Manchester City vs Everton game in 2010-11 with Richard Keys._
 
