@@ -9,7 +9,7 @@ _"He would struggle on a cold night at the Britannia Stadium," the ex-Aston Vill
 
 _The Argentina striker was in particular at the peak of his Barcelona heyday under the management of Pep Guardiola, a talisman in Blaugrana colours._
 
-- [goal.com](https://www.goal.com/en-us/news/what-does-can-they-do-it-on-a-cold-rainy-night-in-stoke-mean-messi-phrase-explained/1f7alegnrwfr01i5vj34vak59k) 
+From [goal.com](https://www.goal.com/en-us/news/what-does-can-they-do-it-on-a-cold-rainy-night-in-stoke-mean-messi-phrase-explained/1f7alegnrwfr01i5vj34vak59k) 
 
 ![Bet365 Stadium](https://upload.wikimedia.org/wikipedia/commons/8/81/Stoke_City_FC_V_Arsenal_09.jpg)
 
